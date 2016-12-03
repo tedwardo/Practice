@@ -1,2 +1,2 @@
 # Inspirblog
-Share inspiration (art, music, news, ideas, images, videos music), compile ideas, create accountability,
+Share inspiration, compile ideas, spread the good word, save a rhinoceros.
